@@ -1,5 +1,5 @@
 # Brisbane-ಕನ್ನಡಿಗರು
-Welcome to Brisbane ಕನ್ನಡಿಗರು Group- This repo is to provide some high level info/things to do in Australia (Brisbane) once you arrive (between 3 to 45 days) and to know more about Brisbane kannada groups and other sports club. 
+Welcome to Brisbane ಕನ್ನಡಿಗರು Group- This repo is to provide some high level info/things to do in Australia (Brisbane) once you arrive and to know more about Brisbane kannada groups and other sports club. 
 
 Once you arrive in Australia
 

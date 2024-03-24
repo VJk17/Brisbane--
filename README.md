@@ -4,11 +4,7 @@ Welcome to Brisbane ಕನ್ನಡಿಗರು Group- This repo is to provide s
 Once you arrive in Australia
 
 Banking
-Once you get to Australia, visit your chosen branch to collect your Debit Mastercard.
-1,Your welcome letter
-2,Your current passport (original document required)
-3,If you have tax residency outside Australia you'll also need to provide your Tax Identification Number (TIN) for each country of foreign tax residency
-4,Once you have been into branch and you're all set up, check out all the different ways you can bank with us.
+[https://github.com/VJk17/Brisbane--/blob/main/Banking.md]
 
 Taxation
 Register to apply for a Tax File Number (TFN) – you’ll need one if you’re planning on working. It can also save you paying too much tax if you open a bank account.

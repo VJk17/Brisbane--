@@ -1,22 +1,21 @@
-# kanndiga groups and other sports clubs
+## kanndiga groups and other sports clubs
 
-## KSQ
+### KSQ
 https://www.kannadasanghaqld.org/my-blog
 https://www.facebook.com/kannadasangaqld
 
-## Queensland Kannadigas Cultural and Sports Society
+### Queensland Kannadigas Cultural and Sports Society
 https://www.facebook.com/Queenslandkannadigas/
 
-## Brisbane Kannada Shale 
+### Brisbane Kannada Shale 
 https://www.facebook.com/profile.php?id=100090011197761
 For more information and enrolments- 
 Contact: Sneha - kannadasanghaqld@gmail.com
 
-## Brisbane Kannada Whatsapp Group
+### Brisbane Kannada Whatsapp Group
 
 
-
-## Badmintion 
+### Badmintion 
 
  SAM Badmition - https://www.facebook.com/search/top?q=sam%27s%20badminton%20arena
  
@@ -24,4 +23,7 @@ Contact: Sneha - kannadasanghaqld@gmail.com
  
  QLD - https://www.facebook.com/queenslandbadminton
 
-## Cricket
+### Cricket
+
+
+https://www.facebook.com/groups/brizind

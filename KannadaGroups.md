@@ -3,7 +3,8 @@
 ## KSQ
 https://www.kannadasanghaqld.org/my-blog
 
-## Q
+## Queensland Kannadigas Cultural and Sports Society
+https://www.facebook.com/Queenslandkannadigas/
 
 ##
 

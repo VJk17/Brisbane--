@@ -4,7 +4,7 @@ Once you get to Australia, visit your chosen branch to set up or to do using onl
 
 Main documentation 
 
-1,Your welcome letter
+1,Your welcome letter (Employer letter if you have aready secured a job)
 
 2,Your current passport (original document required)
 

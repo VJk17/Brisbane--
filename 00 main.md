@@ -14,6 +14,9 @@ https://chat.whatsapp.com/LcmtsJdcGht5CWsCuuppUV  Brisbane-ಕನ್ನಡಿಗ
 
 https://www.facebook.com/Queenslandkannadigas/ - Queensland Kannadigas Cultural and Sports Society
 
+https://www.facebook.com/profile.php?id=100090011197761 For more information and enrolments- Brisbane Kannada Shale
+Contact: Sneha M - kannadasanghaqld@gmail.com
+
 
 ### Brisbane Sports clubs (Cricket and Badmintion) 
 https://www.facebook.com/Queenslandkannadigas/ - Queensland Kannadigas Cultural and Sports Society

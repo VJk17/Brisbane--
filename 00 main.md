@@ -1,26 +1,23 @@
 # Brisbane-ಕನ್ನಡಿಗರು
-Welcome to Brisbane ಕನ್ನಡಿಗರು Group- This repo is to provide some high level information about local community and things to do in Brisbane.
 
-## Banking 
-For more details 
-  [https://github.com/VJk17/Brisbane--/blob/main/Banking_Tax.md]
+Welcome to Brisbane ಕನ್ನಡಿಗರು Group
 
-## Health 
-Depending on your circumstances and visa, you may be eligible for free or subsidised healthcare through Medicare.
-For more details []
+This repo is to provide some high level information about local community and things to do in Brisbane.
 
-## Driver licence 
-Visit your nearest roads authority office to obtain a driver licence if required.
-For more details []
+## Resources  
 
-## Brisbane kannada groups 
-Main kannada groups and connect
+### Brisbane kannada Communities 
 
-## Brisbane Sports clubs (Cricket and Badmintion) 
+https://www.kannadasanghaqld.org/
 
-## Mobile plans
-For More mobile plans, visit online and get the best plan.
-For more details []
+https://www.facebook.com/Queenslandkannadigas/
 
-## Cultural connect 
+
+### Brisbane Sports clubs (Cricket and Badmintion) 
+https://www.facebook.com/Queenslandkannadigas/
+
+North Side - https://www.facebook.com/groups/735604727552423
+https://www.samsbadminton.com.au/
+
+### Cultural connect 
 

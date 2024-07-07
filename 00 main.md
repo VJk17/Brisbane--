@@ -20,9 +20,21 @@ https://www.facebook.com/profile.php?id=100090011197761 - Brisbane Kannada Shale
 ### Brisbane Sports clubs (Cricket and Badmintion) 
 https://www.facebook.com/Queenslandkannadigas/ - Queensland Kannadigas Cultural and Sports Society
 
+## Badmintion
 #### North Side 
     https://www.facebook.com/groups/735604727552423 - ASAP badmintion club - Nundah and Carigesale 
     https://www.samsbadminton.com.au/ - Sams badmintion club - Nundah 
 
-### Cultural connect 
+
+## Cricket
+https://www.facebook.com/groups/brizind
+
+## Cultural connect 
+SEWA - https://www.sewaaustralia.org/
+Gopa kueetra 
+Balavihar 
+BSK
+North Side Shakha 
+
+
 

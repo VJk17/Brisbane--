@@ -22,14 +22,15 @@ https://www.facebook.com/Queenslandkannadigas/ - Queensland Kannadigas Cultural 
 
 ## Badmintion
 #### North Side 
-    https://www.facebook.com/groups/735604727552423 - ASAP badmintion club - Nundah and Carigesale 
-    https://www.samsbadminton.com.au/ - Sams badmintion club - Nundah 
+https://www.facebook.com/groups/735604727552423 - ASAP badmintion club - Nundah and Carigesale 
+https://www.samsbadminton.com.au/ - Sams badmintion club - Nundah 
 
 
 ## Cricket
 https://www.facebook.com/groups/brizind
 
 ## Cultural connect 
+Socialize, network and connect with your community (mainly for kids)- If you have children, worth to check below community 
 SEWA - https://www.sewaaustralia.org/
 Gopa kueetra 
 Balavihar 

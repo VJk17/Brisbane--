@@ -1,7 +1,5 @@
 # Brisbane-ಕನ್ನಡಿಗರು
-Welcome to Brisbane ಕನ್ನಡಿಗರು Group- This repo is to provide some high level info/things to do in Australia (Brisbane) once you arrive and to know more about Brisbane kannada groups and other sports club. 
-
-Once you arrive in Australia
+Welcome to Brisbane ಕನ್ನಡಿಗರು Group- This repo is to provide some high level information about local community and things to do in Brisbane.
 
 ## Banking 
 For more details 

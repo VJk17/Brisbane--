@@ -8,16 +8,16 @@ This repo is to provide some high level information about local community and th
 
 ### Brisbane kannada Communities 
 
-https://www.kannadasanghaqld.org/
+https://www.kannadasanghaqld.org/ - Kannada Sangha Queensland (Inc)
 
-https://www.facebook.com/Queenslandkannadigas/
+https://www.facebook.com/Queenslandkannadigas/ - Queensland Kannadigas Cultural and Sports Society
 
 
 ### Brisbane Sports clubs (Cricket and Badmintion) 
 https://www.facebook.com/Queenslandkannadigas/
 
-North Side - https://www.facebook.com/groups/735604727552423
-https://www.samsbadminton.com.au/
+North Side - https://www.facebook.com/groups/735604727552423 - ASAP badmintion club - Nundah and Carigesale 
+https://www.samsbadminton.com.au/ - Sams badmintion club - Nundah 
 
 ### Cultural connect 
 

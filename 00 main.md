@@ -10,6 +10,8 @@ This repo is to provide some high level information about local community and th
 
 https://www.kannadasanghaqld.org/ - Kannada Sangha Queensland (Inc)
 
+https://chat.whatsapp.com/LcmtsJdcGht5CWsCuuppUV  Brisbane-ಕನ್ನಡಿಗರು Whatsapp Group 
+
 https://www.facebook.com/Queenslandkannadigas/ - Queensland Kannadigas Cultural and Sports Society
 
 
